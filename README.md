@@ -2,6 +2,5 @@
 
 This is a simple readme file.
 
-nerd nerd nerd
-
-kjldsjksfdajlksf
+nerd nerd ne
+FUCK
